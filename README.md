@@ -1,2 +1,2 @@
 # hello-world
-Minify 
+Minify Manufacturers & exporters of premium quality leather jackets & coats. 
